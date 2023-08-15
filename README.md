@@ -6,15 +6,13 @@
 # 每天基本上都会有涨停分析，以及强势股复盘整理
 # 资讯的网站可以访问，每天都有最新股票的资讯，会第一时间发布：http://stocks.zirobot.cn
 
-市场逻辑精选红宝书如下：
+### 微信号：huaqiangu_8899
+
+### 市场逻辑精选红宝书如下：
 ![image](https://github.com/LJ2860442351/StockRedBook/assets/31836769/54771833-a2de-4bf5-92bd-6095983ef515)
-
-
 ![image](https://github.com/LJ2860442351/StockRedBook/assets/31836769/ff75b6db-2c26-4d0a-acf8-19aa4b22591b)
 
-加入相关的群可以扫以下码：
-
+### 想要加入相关的群可以扫以下码：
 ![微信图片_20230814213448](https://github.com/LJ2860442351/StockRedBook/assets/31836769/fae3b4d0-a6e6-4799-9f76-88ffac00b422)
-
 ![微信图片_20230815214007](https://github.com/LJ2860442351/StockRedBook/assets/31836769/fbdfa78d-e6ee-4b33-88df-3c0ac3cad3ed)
 
